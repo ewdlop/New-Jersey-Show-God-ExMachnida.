@@ -1,2 +1,2 @@
-# New-Jersey-Show-God-ExMachnida.
+# New-Jersey-Shore-Show-God-ExMachnida.
 improved-bassoon
